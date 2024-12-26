@@ -1,1 +1,0 @@
-# sripathivamshi.github.io
